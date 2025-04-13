@@ -41,7 +41,7 @@ If you share similar interests or want to collaborate on anything related to com
 
 📧 rahmiatiruwaida22@gmail.com
 
-🌐 [LinkedIn](https://linkedin.com/in/rahmiatiruwaida) *(replace with your actual link if available)*
+🌐 [LinkedIn](https://linkedin.com/in/rahmiatiruwaida)
 
 ---
 
