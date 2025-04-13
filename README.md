@@ -40,6 +40,7 @@ Currently working on projects that merge education with computer vision. Stay tu
 If you share similar interests or want to collaborate on anything related to computer vision and education, feel free to reach out!
 
 📧 rahmiatiruwaida22@gmail.com
+
 🌐 [LinkedIn](https://linkedin.com/in/rahmiatiruwaida) *(replace with your actual link if available)*
 
 ---
